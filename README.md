@@ -14,3 +14,8 @@ meu nome é Emily 🥇
 - @Emilyalmeida23
 
  ![](https://media1.tenor.com/m/DLZFurDZtgcAAAAC/stitch-ruim-wave.gif)
+
+
+
+
+file:///C:/Users/EmilyNunesDeAlmeida/Desktop/aluraflix/index.html
